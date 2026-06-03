@@ -1,4 +1,4 @@
-# 
+# Léger momentum trading bot plugins pour Mac OS | Sécurisé momentum trading bot plugins pour PC Windows. Avec contrats perpétuels et limitation de débit — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
